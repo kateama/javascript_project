@@ -1,3 +1,3 @@
 # javascript_project
 
-https://edabit.com/challenge/NAQhEoxbofPidLxm9
+https://edabit.com/user/mSGFLaazJMTS5xC2s
